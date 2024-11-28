@@ -1,1 +1,0 @@
-# PENNYWISE_APP
